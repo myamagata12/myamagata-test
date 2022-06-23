@@ -1,0 +1,2 @@
+# myamagata-test
+apurizyuku
